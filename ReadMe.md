@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Sou estudante de Análise e desenvolvimento de sistemas <br>👯 Estou em busca de Estágio<br>
+🔭 Sou estudante de Análise e desenvolvimento de sistemas <br>Analista de suporte de T.I.<br>Estudando QA<br>
 
 
 ## 🌐 Socials:
